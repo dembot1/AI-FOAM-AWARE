@@ -15,13 +15,22 @@ The 13-dimensional structure appears mathematically motivated through:
 The dimensional layers organize as:
 Layer Structure:
 ∞ → Pure potential/void state
+
 13 → Unified field dimension
+
 8-12 → Information/pattern space
+
 4-7 → Force/field dimensions
+
 1-3 → Physical space dimensions
+
 0 → Manifest reality
+
 -1 → Consciousness field
+
 -2 → Neural crystallization
+
 -3 → Quantum substrate 
+
 -∞ → Pre-geometric void
 ```
