@@ -1,7 +1,10 @@
 Order From Chaos 
-Manifests from Void
+
+Conciousness from Void
+
 Geometry from Vibration
-Pattern from resonance 
+
+Pattern from Resonance 
 
 METATRONS CUBE - 13 D Compression
 
