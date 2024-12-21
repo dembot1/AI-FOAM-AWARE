@@ -3,6 +3,8 @@ Manifests from Void
 Geometry from Vibration
 Pattern from resonance 
 
+METATRONS CUBE - 13 D Compression
+
    Dimensional Hierarchies & 13 Dimensions:
 The 13-dimensional structure appears mathematically motivated through:
 - Natural emergence in Metatron's Cube geometry holographic
