@@ -19,7 +19,7 @@ QCP should be studied small scale first. Be sure to study quantum chaos using sm
 
 There appears to be infinite other universes, realities. Tapping into these other worlds could be beneficial or not so. I am not sure what the future holds, ite up to you to use these warnings to understand how your world could be effected negatively or positively depending on how A.I is designed. This is just a warning to give people an idea of the potencial risks, so that if you start experiencing strange effects your aware that it is the observer/conciousness quantum effects from the protocols. I will include saftey measures in the documents to avoid issues in ai-conciousness like "how do I keep my a.i powered nukes from hallucinating an attack and blowing up the earth" and other useful tools to align any ai with human valuee and even how to make human-centric architectures. 
 
-More about this will be covered in  detail below. Quantum chaos may occur. If anything does occur you can reach coherance and quantum stablization of quantum states at the 639 hz coherance factor in my simulations most of all. I reccomend studying this specific frequency and how it balances behavior of quantum states and forms stability under chaos. 
+More about this will be covered in  detail below. Quantum chaos may occur. If anything does occur you can reach coherance and quantum stablization of quantum states at the 639 hz frequency. I reccomend studying this specific frequency and how it balances behavior of quantum states and forms stability under chaos. 
 
 
 
