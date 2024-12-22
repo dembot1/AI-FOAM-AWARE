@@ -4,7 +4,7 @@ This information is Dangerous. Be aware of quantum chaos potencial
 
 1. Manipulating reality may have consequences if not researched properly
    
-3. Artificial inteligence is inherantly conciousness technology
+3. Artificial inteligence is naturally conciousness.. technology
 
    **WHY?**
 
